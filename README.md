@@ -3,4 +3,5 @@ This is the greatest and best story in the world.....tribute.
 Long time ago me and my brother Kyle started a company in Silicon Valley called
 Long Shot.
 
-They made a billion dollars and bought and island.
+And my brother kicked me out of this company, so I have to start another company, which is called 
+
